@@ -14,3 +14,4 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Cayote Deep Singh
 * Italian Deep Singh
 * Deep Singh
+* Chutiya Chahu
