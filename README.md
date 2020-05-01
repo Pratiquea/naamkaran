@@ -11,4 +11,4 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Ogre Deep Singh
 * Edamame
 * Chahuuuuu
-* Deep Singh
+* Cayote Deep Singh
