@@ -5,7 +5,7 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Cuchee Cuchee deep singh
 * Marinated deep singh
 * Marinara deep singh
-* Rosemerry deep singh
+* Rosemary deep singh
 * Parsley deep singh
 * Ravioli deep singh
 
