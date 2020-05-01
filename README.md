@@ -2,7 +2,7 @@
 Names conferred to Chahatdeep singh by Nitin J Sanket
 
 * Maadarchod Deep Singh
-* Cuchee Cuchee Deep Singh
+* Kuchi Kuchi Deep Singh
 * Marinated Deep Singh
 * Marinara Deep Singh
 * Rosemary Deep Singh
@@ -12,3 +12,5 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Edamame
 * Chahuuuuu
 * Cayote Deep Singh
+* Italian Deep Singh
+* Deep Singh
