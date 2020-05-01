@@ -13,5 +13,6 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Chahuuuuu
 * Cayote Deep Singh
 * Italian Deep Singh
-* Deep Singh
+* Purple Deep Singh
 * Chutiya Chahu
+* Bash Deep Singh
