@@ -1,13 +1,13 @@
 # naamkaran
 Names conferred to Chahatdeep singh by Nitin J Sanket
 
-* Maadarchod deep singh
-* Cuchee Cuchee deep singh
-* Marinated deep singh
-* Marinara deep singh
-* Rosemary deep singh
-* Parsley deep singh
-* Ravioli deep singh
-* Ogre deep singh
+* Maadarchod Deep Singh
+* Cuchee Cuchee Deep Singh
+* Marinated Deep Singh
+* Marinara Deep Singh
+* Rosemary Deep Singh
+* Parsley Deep Singh
+* Ravioli Deep Singh
+* Ogre Deep Singh
 * Edamame
-* Chahuuuuuuuuuuuu
+* Deep Singh
