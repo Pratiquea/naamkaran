@@ -18,6 +18,6 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Bash Deep Singh
 * Pesto Deep Singh
 * Dalgona Deep Singh
-* Bhurr Dhurr Deep Singh
+* Bhurr Bhurr Deep Singh
 * Frothie Deep Singh
 * Laudie Deep Singh
