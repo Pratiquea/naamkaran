@@ -16,3 +16,5 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Purple Deep Singh
 * Chutiya Chahu
 * Bash Deep Singh
+* Pesto Deep Singh
+* Deep Singh
