@@ -17,4 +17,5 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Chutiya Chahu
 * Bash Deep Singh
 * Pesto Deep Singh
+* Dalgona Deep Singh
 * Deep Singh
