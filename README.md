@@ -21,3 +21,4 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Bhurr Bhurr Deep Singh
 * Frothie Deep Singh
 * Laudie Deep Singh
+* Barbie Deep Singh
