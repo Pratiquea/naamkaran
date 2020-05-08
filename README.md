@@ -22,3 +22,14 @@ Names conferred to Chahatdeep singh by Nitin J Sanket
 * Frothie Deep Singh
 * Laudie Deep Singh
 * Barbie Deep Singh
+* Tulip Deep Singh
+* Pugreno Deep Singh
+* Sheading Deep Singh
+* Daadi maami
+* Deep Singh
+* Deep Singh
+* Deep Singh
+* Deep Singh
+* Deep Singh
+* Deep Singh
+* Deep Singh
